@@ -33,3 +33,7 @@ BLEACH55 THE BLOOD WARFARE
 BLEACH19 THE BLACK MOON RISING
 
 そう、何ものも hotogomaの世界を 変えられはしない
+
+## noraneko (新郎/新婦との関係: 同僚/闇)
+
+初めに会った時から二人はすごく仲が良くて、まさか新婚さんだったとは！という感じでした。会社帰りにたまに二人を見かけて微笑ましくお家に帰ってます！おめでとう！
