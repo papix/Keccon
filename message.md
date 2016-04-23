@@ -33,3 +33,13 @@ BLEACH55 THE BLOOD WARFARE
 BLEACH19 THE BLACK MOON RISING
 
 そう、何ものも hotogomaの世界を 変えられはしない
+
+## isaoeka (新郎/新婦との関係: 仮想同期/闇)
+
+そら（結婚したとなれば）そう（祝うもん）よ
+そう（末永くお幸せに）なれば、そう（幸せのお裾分けをお願いしたく）なるわな 
+
+## scrtree
+
+おめでとう！
+![ダブルピース](http://i.imgur.com/Aahxmou.jpg)
